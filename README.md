@@ -1,1 +1,1 @@
-# CSGO-Skin-Prinouts
+# CSGO-Skin-Printouts
